@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+MrCheese's Blog: My name MrCheese!
 ---
 
-I'm glad you are here. I plan to talk about ...
+My name MrCheese! My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!My name MrCheese!
